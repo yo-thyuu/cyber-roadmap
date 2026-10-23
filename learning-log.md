@@ -1,0 +1,1 @@
+# Learning Log## Week 1 *\*Week summary:\*\*- Comfortable with:- Still weak:- Next week: ---
